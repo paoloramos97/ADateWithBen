@@ -1,0 +1,1 @@
+This was a final project for a java class I was attending. I'm extremely proud of this project since this was one with my creative freedom and I absolutely enjoyed this one. It's my first "real" project and I hope to continue improving this project or create a new one with more additions. 
